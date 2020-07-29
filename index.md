@@ -1,4 +1,6 @@
-## Bedste værk i byn :-)
+## Bedste 🥐 i byn
 
-1. Fru Lund 
-2. Wendorff
+ - Fru Lund 
+
+## Bedste 🥐 til prisen 
+ - Wendorff
