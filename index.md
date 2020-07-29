@@ -2,5 +2,5 @@
 
 Bedste værk i byn :-) 
 
-1: 
-2: 
+1: Fru Lund 
+2: Wendorff
